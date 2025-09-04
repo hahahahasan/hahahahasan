@@ -16,3 +16,9 @@ hehe, i use too many platforms, right? yes. this might seriously be too much for
 footnote: if you want to collaborate, please write to my email.
 
 i call out to the person who accessed my account: if you read the footnote and want to do it, do what it says. goodbye!
+
+wait a second! i forgot to say something! if you want to access my 34 GB brawl stars assets, the link is below:
+
+→ https://1024terabox.com/s/1H-A0c0oB24XrCnWcggGlIw
+
+hah, here i go now. see you later.
