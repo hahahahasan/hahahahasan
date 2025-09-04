@@ -1,16 +1,17 @@
-## Hi there 👋
+hello there! i am entity_303 (hahahahasan) i love writing code, listening to songs, mixing things. although there isn't much I can say, but I'll explain anyway.
+you can reach me on the following platforms:
+→ kuchas616161@gmail.com
 
-<!--
-**hahahahasan/hahahahasan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+→ https://www.youtube.com/@trabzonlupiyanist6161
 
-Here are some ideas to get you started:
+→ https://open.spotify.com/user/317n6pegfnjhxv7udb256wifw2oa?si=cbab34cbae8e4f30
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+→ https://www.tinkercad.com/users/dHDU0KaO02e
+
+→ github.com/CartCurt256
+
+hehe, i use too many platforms, right? yes. this might seriously be too much for a 10 year old kid.
+
+footnote: if you want to collaborate, please write to my email.
+
+i call out to the person who accessed my account: if you read the footnote and want to do it, do what it says. goodbye!
